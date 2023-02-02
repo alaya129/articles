@@ -1,0 +1,696 @@
+# 2023-01
+
+# Welcome to F&F’s Next Chapter
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/a8adb5cb-f1e2-40e5-9771-bb356f64dbb4)
+
+What will 2023 bring to the F&F industry? The global ﬂavors and fragrances market is projected to grow from $26.54 billion in 2022 to $36.49 billion by 2029, at a CAGR of 4.7% in forecast period. Perfumer & Flavorist+ (P&F+) is ready to ﬁnd out the next wave of innovation in technology, evolving consumer demands, regulatory updates and launches from F&F companies across the globe.
+
+The industry has been buzzing with news of advances in artiﬁcial intelligence (AI) and virtual reality experiences for consumers. After attending the World Perfumery Congress 2022, fragrance consultant, Olivia Jezler, penned a column on how the event provided a preview of a sensory future combining human expertise and computing precision. Readers can discover her ﬁndings on page 24.
+
+Another growing relationship is between fragrance and well-being. Explore the recent platforms for research by F&F companies as well as products debuting on shelves around the world designed to tap into mental health and well-being on page 32.
+
+On the ﬂavor side, be sure to mark your calendar for Flavorcon 2023, scheduled to return to the Duke Energy Convention Center in Cincinnati, November 8-9. More details to come on the upcoming event as it grows closer. Expect an off-site networking event, a loaded expo hall and a slew of fresh conference sessions. Until then, you can discover a recap of last year’s edition on page 40.
+
+The January issue also celebrates the latest additions to P&F+’s advisory board (Page 42), with two of our members highlighted in the Proﬁles section (Pages 10). With the help of our advisory board, we plan to continue providing the most relevant and inspiring content for F&F professionals. If you have a pitch for a guest column or would like to weigh in on a topic, please send an email to [jrimensnyder@allured.com](mailto:jrimensnyder@allured.com).
+
+# Ingredients and Equipment
+
+Vanillin isobutyrate natural, ≥98%, FG
+
+MilliporeSigma
+
+[www.sigmaaldrich.com/W375420](http://www.sigmaaldrich.com/W375420)
+
+We invite you to experience our listing of vanillin isobutyrate natural (FEMA# 3754, CAS# 20665-85-4). This ingredient has a sweet proﬁle of vanilla and nutmeg. It is certiﬁed food grade, halal, kosher, natural, follows IFRA guidelines and meets purity speciﬁcations of JECFA. Contact us at [ff@milliporesigma.com](mailto:ff@milliporesigma.com) for a free sample.
+
+HiPer Ginger
+
+Lionel Hitchen
+
+[www.lionelhitchen.com/hiper-spices-range/](http://www.lionelhitchen.com/hiper-spices-range/)
+
+We handle the mess, you get the pleasure of the whole ginger root experience. Our HiPer Ginger (FEMA#2523, CAS#84696-15-1) is manufactured using multiple process steps to remove the insoluble parts, resulting in an enhanced ﬂavor proﬁle, low color and an excellent ingredient for beverage ﬂavors.
+
+Fragolane
+
+Symrise AG
+
+[www.symrise.com/de/scent-care/aroma-molecules/ingredient-ﬁnder/#Fragolane](http://www.symrise.com/de/scent-care/aroma-molecules/ingredient-%EF%AC%81nder/#Fragolane)
+
+Fragolane (FEMA# 4294, CAS# 6290-17-1) comes with sweet anisic and fennel notes and a deep fruity character. It contributes body and sweetness to nearly all fruit ﬂavors. It underlines herbal and spicy notes. It works in meat and onion ﬂavors, like plant-based food products, adding juiciness. Besides strawberry, it ﬁnds use in perfumery.
+
+Trimethylamine
+
+Natural Advantage
+
+[www.natadv.com](http://www.natadv.com)
+
+Natural Advantage introduces natural trimethylamine (FEMA #3241, CAS # 75-50-3). Natural trimethylamine occurs naturally in beer and cocoa, but most importantly in ﬁsh, where it gives that ﬁshy taste and odor. Other uses are seafood and pork. Natural trimethylamine can be used in fruit ﬂavors at low levels to impart a pulpy ﬂesh impression. Available in water soluble and oil soluble, and low odor trimethylamine at 25%. Used at 0.001 ppm to 0.1 ppm as consumed. EU and U.S. natural, kosher, non-GMO, vegetarian.
+
+Natural Nootkatone 70
+
+Isobionics
+
+[www.isobionics.com/global/en/product-ﬁnder/natural-](http://www.isobionics.com/global/en/product-%EF%AC%81nder/natural-)
+
+nootkatone-70.html
+
+Isobionics Natural Nootkatone 70 (FEMA# 4941, CAS# 4674-50-4) has a dry cedar, woody and grapefruit cedar, incense and sandalwood taste. With 70% purity, the product is suitable for a broad range of applications such as beverage formulations. Due to our cutting-edge fermentation technology we guarantee premium quality and reliable availability. It is EU and U.S. natural, pesticide-free, food grade, kosher and halal certiﬁed.
+
+EU Natural Filbertone 98%, Chiral
+
+Oamic Ingredients LLC
+
+[www.oamicus.com](http://www.oamicus.com)
+
+Natural ﬁlbertone (FEMA# 3761, CAS# 81925-81-7) has aroma characteristics at 1.0% of sweet roasted hazelnuts and a rich, nutty nuance with a roasted nut skin. Taste characteristics at 5 ppm are nutty, roasted, coffee, cocoa, brown with an earthy and meaty nuance, sugar fondant, delicate, hazelnut, with macadamia and pecan nuances.
+
+# Perfumer Offers Insight into Sold Out Elon Musk’s Burnt Hair Fragrance
+
+When billionaire entrepreneur Elon Musk announced his fragrance that was created to smell like burnt hair, the internet went wild. News of the fragrance went viral and upon the release of “Burnt Hair,” a scent for men by Singed, sold out immediately. But what makes consumers so intrigued by this scent? Is it actually worth the wear or is it just to acquire a piece of pop culture?
+
+Sold on [boringcompany.com](http://boringcompany.com), the fragrance, also referred to as “The Essence of Repugnant Desire,” hosted the following quotes posed  as reviews:
+
+•	“Just like leaning over a candle at the dinner table, but without all the hard work.”
+
+•	“Stand out in a crowd! Get noticed as you walk through the airport.”
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/5f866014-159b-4aec-b31a-9c360ffc3753)
+
+> Perfumer & Flavorist+ reached out to Firmenich senior perfumer (and World Perfumery Congress 2022 speaker), Frank Voelkl, to discuss the nuances of the fragrance and what, if anything, this scent says about the trends of the market.
+
+Perfumer & Flavorist+ reached out to Firmenich principal perfumer (and World Perfumery Congress 2022 speaker), Frank Voelkl, to discuss the nuances of the fragrance and what, if anything, this scent says about the trends of the market. While Voelkl did not have a hand in the fragrance, he offered his insight into the interesting formulation.
+
+P&F+: From your perspective, why are people so attracted to something like this?
+
+Frank Voelkl [FV]: Scents that are different, interesting and even a bit weird don’t always have to be bad, and they can grasp your attention and create buzz. I think that this is the case here and it attracts people because there is something intriguing and familiar in the scent of burnt hair. Everyone knows what that smells like, and there is a familiarity aspect there, as well. I personally remember bending over a candle as a kid and smelling a hair that caught ﬁre, and like that, I think we all have smelled it at some point. It’s also not a repulsive scent, so all in all, I can see the intrigue.
+
+P&F+: Working with major celebrities and ﬁgures is common for Firmenich, can you share some of the details behind what that collaboration entails?
+
+FV: At Firmenich, I’ve met and worked with quite a few celebrities, and they are actually quite often really into fragrances and creating something they feel great about. Even though they don’t have the “traditional” perfumery training or experience, they do have a passion and a strong opinion on what they like and don’t, which is great. I enjoy working with someone who is not in my ﬁeld and ﬁnding a common ground to create something that really represents who they are and what they stand for.
+
+P&F+: Does this scent say anything about the trends of the market?
+
+FV: There’s a desire to stand out and be different today, even olfactively speaking. The consumer is also much more educated and well-versed in fragrances today and in turn may be more curious and are more comfortable going into different territories that have a strong point of difference. These consumers don’t feel the need to stay in comfortable or traditional realms of scent, since they are willing to stand out.
+
+# Fragrance Creators Announces Additions to Fragrance Conservatory
+
+Fragrance Creators Association (Fragrance Creators) has announced the addition of nearly 150 ingredients to its Fragrance Conservatory (fragranceconservatory.com). The conservatory is said to include 448 fragrance ingredient proﬁles, designed to provide information on ingredients in scented home and fabric care, beauty and personal care products, and ﬁne fragrances. Alongside dedicated pages on fragrance safety, well-being beneﬁts, history and more, the website’s Ingredient Directory features proﬁles on the scent, origins, safety, and more of individual fragrance ingredients.
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/6b09f48d-be0c-463c-9fe2-4ea594472614)
+
+> Discover the newly added ingredients by visiting Fragrance Creators’ Fragrance Conservatory.
+
+Farah K. Ahmed, president and CEO, Fragrance Creators, stated, “[FragranceConservatory.com](http://FragranceConservatory.com) operationalizes our members’ commitment to empowering consumers with high-quality information about the fragrances contained in the products they use every day. We encourage all companies along the fragrance value chain to link to the site so, together, we can advance consumer knowledge and understanding about the safety and important well-being beneﬁts fragrance delivers. We are proud of the continued growth of this essential resource to ensure that fragrance facts and insights remain accessible to everyone.”
+
+# IFRA U.K. Presents Sense of Smell Survey Results
+
+The International Fragrance Association U.K. (IFRA U.K.) has undertaken a recent YouGov survey to take an in-depth look at the United Kingdom’s sense of smell and how much it is valued.
+
+The survey showed that less than 1% of U.K. adults will acknowledge having no sense of smell, with women more likely than men to say their sense of smell is excellent. It also revealed that over half of U.K. adults
+
+(55%) say they notice the smell of things ﬁve or more times a day and almost two-thirds (64%) say they can imagine particular smells well, such as cut grass, fresh laundry and fried onions. Nearly half the population (49%) notice the scents of friends or relatives, and over two-thirds (71%) of the population notice the smell of places they regularly visit, such as museums, holiday spots or churches.
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/a7157361-4f15-4714-9d05-ad18aa04385f)
+
+> The survey showed that less than 1% of U.K. adults will acknowledge having no sense of smell, with women more likely than men to say their sense of smell is excellent.
+
+The survey revealed that for 60% of U.K. adults, the main feeling evoked by their sense of smell is nostalgia. Much of that sense of comfort and sentimentality is connected to food—almost a third of U.K. adults (32%) appreciate their sense of smell because it helps sharpen their appetite. When asked what childhood smells they remember, responses included “freshly mown grass,” “cakes baking,” “the smell of rain,” “melting Tarmac,”
+
+“Sunday roast cooking” and even “school dinners.” When asked what smells they no longer encounter and miss, many responses were linked to food and home comforts, including “grandparents’ cooking,” “Grandma’s kitchen,” “my Mum’s face cream” and “Grandad’s shed.”
+
+The survey identiﬁed that the top reasons people value their sense of smell are:
+
+•	It helps them be alert to feelings of cleanliness and hygiene (50% of U.K. adults)
+
+•	It draws their attention to unpleasant things (49%of U.K. adults)
+
+•	It reminds them of people, places and things in the past (44% of U.K. adults)
+
+•	It sharpens their appetite (32% of U.K. adults)
+
+•	It makes people feel more aware of the natural world (31%)
+
+Lisa Hipgrave, director of IFRA U.K., said, “The survey shows that people are much more aware of their sense of smell than is widely assumed and many can easily recall and identify important smells and scents. Unsurprisingly, with loss of smell listed as one of the main symptoms of COVID-19, many people value their sense of smell more than they did three years ago, pre-pandemic.”
+
+Barry C Smith, director of the Institute of Philosophy at the Center for the Study of the Senses and chair of IFRA U.K.’s Fragrance Forum 2022, said, “We average around 20,000 breaths a day with each one informing us about our surroundings. As the survey revealed, we use our sense of smell to indicate if something is fresh, to sharpen our appetite, and to alert us to unpleasant things. The olfactory receptors in the nose connect us directly to areas of the brain that create memories. That’s why our sense of smell is so important to our well-being and to feel connected. It connects us to our present surroundings but also to our pasts with familiar aromas evoking feelings of nostalgia. At this year’s Fragrance Forum, we will delve deeper into what people think about their sense of smell, the role it plays in their lives and how we can measure how good it is or isn’t.”
+
+# Argeville Opens South African Development Center
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/be62d7c2-1de6-4619-83d8-0fdaab4b09f8)
+
+> The opening is part of the company’s plan to strengthen its international development and consolidate its presence in strategic commercial areas.
+
+Argeville has debuted its latest development center in Johannesburg, South Africa.
+
+The center is said to be part of the company’s plan to strengthen its international development and consolidate its presence in strategic commercial areas. The aim is also to get closer to its regional customers, with whom it has worked for over 20 years on a cross-category product offers, including fragrances, personal care and air care.
+
+Jointly managed by Richard Kourennoy, Africa sales manager, and Ignacio Garcia, the center is designed to grow rapidly with the arrival of new collaborators.
+
+Located in Rosebank, the business and commercial district of Johannesburg, Argeville strategically placed this location at the crossroads of the main transport routes to allow quick access to the city center.
+
+Argeville has also announced that it is working on establishing new centers in 2023.
+
+# PROFILES: DARRYL DO and ALISON FREEDMAN
+
+> Get to know the F&F journeys of these two advisory board members.
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/cc78809a-4cfb-4a77-bc53-4345d5f2b05d)
+
+Name: Darryl Do
+
+Title: Perfumer
+
+Location: New York City, New York
+
+**Darryl Do, perfumer, Delbia Do**
+
+Fragrances & Flavors
+
+Perfumer & Flavorist+: What led you to the fragrance industry? Can you share your journey?
+
+Darryl Do: You could say I grew up in this industry training under my dad, Dennis Do. He was a perfumer and flavorist who started out working for other companies in the industry, Perry Brothers, UOP, Ungerer among others, before he started his own company, Delbia Do Fragrances & Flavors located in the South Bronx. This is one of the few areas of New York City zoned for manufacturing M1-M2, required for the flammables we used.
+
+I would work in the lab, reﬁlling bottles, light compounding, cleaning tanks and equipment used in perfumery manufacturing.
+
+Since many of his friends were perfumers, chemists, and owners of other fragrance companies, he would ask them if they needed any help, volunteer my services and I would happily oblige. He told me that this was the best way to learn all the different areas of the business. Once I was out of college and ﬁnished my “formal” training, I was ready to begin my practical training. Dad had a friend, Vincent Ellis, who was leaving his position as chief perfumer at Felton and was starting his own fragrance house. (This is the ﬁrst instance I can remember of a “indie perfumer”). I became his apprentice/compounder for two-three years, evaluating raw materials with him.
+
+Then in 2001, after 9/11, my dad’s friend Marguerite [Wytenhove] wanted to move out from her space in Tribeca and decided to come up to our building in the Bronx. This became the home of M. Wytenhove, the U.S. Distributor for Laboratorie Monique Remy and Synarome USA for 10+ years. I was spoiled working with these amazing oils.
+
+I look back on the old ingredient landscape and ﬁnd myself missing musk ambrette and musk xylol, BUT there are a few newbies! Amber Xtreme, Cashmeran and nootkatone to name a few. I continue to search for the latest and greatest out there to keep my creative juices ﬂowing and this is the part I get excited about.
+
+I ﬁll the need from fragrance and ﬂavor develop-ment, toll compounding to custom formulation and blending of alcohol solutions perfumes and colognes for other fragrance houses, perfumers and beauty brands. As my dad would ask, “what do you need, I’m sure Darryl can help.”
+
+**Alison Freedman, certiﬁed ﬂavorist,**
+
+Firmenich
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/2d4d0c59-4fdc-4ce6-b2a3-950c184ff7dc)
+
+Name: Alison Freedman
+
+Title: Certiﬁed ﬂavorist
+
+Location: New York City, New York
+
+Perfumer & Flavorist+ [P&F+]: What led you to the ﬂavor industry?
+
+Alison [AF]: Fate and following my efforts.
+
+I graduated with a degree in Food Science & Technology from Virginia Tech and ended up with the good fortune of ﬁnding an opportunity to work in the industry through networking. I never gave up on proving my ability early in my career, and I consistently expressed my sincere interest in training with ﬂavorists by offering to help their team whenever I had a moment of downtime.
+
+P&F+: What applications do you primarily formulate for? Do you have a favorite?
+
+AF: I work cross-functionally and I love being able to touch them all–variety is the spice of life.  I sincerely enjoy each segment in its own way–savory for a challenge and complexity, beverage because I love a moment to imbibe, and sweet goods because, well, who doesn’t love something sweet?
+
+P&F+: Advice for people coming into the flavor field.
+
+AF: Go above and beyond, however you are able. Remain curious. Maintain a level of humility. Determination, passion and initiative can take you far.
+
+P&F+: Are the types of projects you're working on changing over time? How are the creative demands of the job evolving?
+
+AF: The world is evolving at an incredibly fast pace and we are living in a digital age. Flavorists are engaging now more than ever with technologies and artiﬁcial intelligence-based tools to continuously improve our speed of execution. Global supply chain disruptions and inﬂated costs have brought out new ways for ﬂavorists to creatively deliver sustainable, cost effective products.
+
+P&F+: What is the best part of your job?
+
+AF: Being part of a team and experiencing the thrill of our success and the agony of our defeat together. No two days are ever the same in this industry and having the opportunity to learn each day is a blessing. The very best part is waking up each day and coming to work with true purpose: creating positive emotions to enhance well-being through my ﬂavor creations.
+
+# Flavor Bites: 6-Methyl-5-hepten-2-one
+
+> This material widens the range of use to include ﬂavors that heptan-2-one, for example, would struggle to adapt to.
+
+6-Methyl-5-hepten-2-one (FEMA# 2707, CAS# 110-93-0) is an interesting, and rather unusual, raw material. It has a number of fairly close relatives. Heptan-2-one is distinctly blue cheese in character, vital in all dairy ﬂavors. It is also somewhat interesting in many other categories but difﬁcult to incorporate. Heptan-4-one is distinctly fruity and pineapple in character and quite different from heptan-2-one. It has a fairly limited area of use in the fruit ﬂavor category.
+
+6-Methyl-5-hepten-2-one sits somewhere in between these two very clear proﬁles. It has a soft and attractive fruity character, combined with a modest hint of blue cheese. This contrarian combination of nuances might, in theory, render a raw material difﬁcult to use. In this case, it actually widens the range of use to include ﬂavors that heptan-2-one, for example, would struggle to adapt to. Heptan-2-one only really retains a dominant position in dairy ﬂavors.
+
+Note that the dose rates given throughout this article are the levels suggested for use in ﬂavors intended to be dosed at 0.05% in ready-to-drink beverages or in a simple bouillon.
+
+### Vegetable Flavors
+
+Cooked rice: Rice is at the opposite end of the complexity spectrum to ginger. Flavors are, all too often, very simple. Levels of 100 ppm of 6-methyl-5-hepten-2-one add detail and realism.
+
+Ginger: Ginger is a frustratingly complex proﬁle to work with. Outside of natural ginger oils and extracts, the list of ingredients that push the proﬁle in a positive direction is sadly limited. 6-Methyl-5-hepten-2-one, at around 400 ppm, has a positive, refreshing, inﬂuence.
+
+Spring onion: A similar effect can be seen in spring onion ﬂavors. The ideal level of addition is somewhat lower, around 50 ppm.
+
+Toasted corn: 6-Methyl-5-hepten-2-one adds complexity and authenticity to all types of corn ﬂavors, but especially to toasted corn proﬁles. Levels of 20 ppm have a signiﬁcant impact.
+
+Tomato: Many ingredients have a natural home, a ﬂavor where their impact is maximized. In the case of 6-methyl-5-hepten-2-one, it is tomato. This ingredient is important in all types of tomato ﬂavors. Fresh and processed tomato ﬂavors have an ideal level of addition around 1,000 ppm. Sun dried tomato ﬂavors, understandably, need a little more, around 2,000 ppm.
+
+### Citrus Flavors
+
+Grapefruit: 6-Methyl-5-hepten-2-one, at around 20 ppm, lifts grapefruit ﬂavors and adds realism.
+
+Lemon: The same 20 ppm level has a very similar effect in all styles of lemon ﬂavors.
+
+Mandarin: The effect is noticeably more pronounced in mandarin ﬂavors and really serves to differentiate the proﬁle.
+
+Orange: A perfectly reasonable level of addition for orange ﬂavors is 20 ppm, but a higher level, around 50 ppm, pushes the proﬁle in an attractive tangerine direction.
+
+Tangerine: Overtly tangerine ﬂavors can make good use of even more 6-methyl-5-hepten-2-one, up to 200 ppm.
+
+### Orchard Fruit Flavors
+
+Apple: Apple ﬂavors excel at bright estery and green notes but can lack balance and complexity. 6-Methyl-5-hepten-2-one helps to round out the proﬁle of apple ﬂavors at around 100 ppm.
+
+Apricot: A similar level, 100 ppm, lifts all styles of apricot ﬂavors, working equally well in fresh and dried styles.
+
+Cherry: 6-Methyl-5-hepten-2-one counteracts benzaldehyde in cherry ﬂavors and helps to lever the proﬁle in a more authentic direction at 100 ppm.
+
+Nectarine: Nectarine ﬂavors beneﬁt from more modest levels of 6-methyl-5-hepten-2-one than apricot ﬂavors, very much in line with the more subtle proﬁle of nectarines. A good starting point is 50 ppm.
+
+Peach: The opposite is true for peach ﬂavors. In this category, 150 ppm is ideal.
+
+Pear: The proﬁle of pear ﬂavors bears some similarity to apple ﬂavors and the ideal level of
+
+6-methyl-5-hepten-2-one is the same, 100 ppm.
+
+### Other Fruit Flavors
+
+Blackcurrant: 6-Methyl-5-hepten-2-one, at around 100 ppm, adds an interesting twist to realis-tic blackcurrant ﬂavors.
+
+Blueberry: Many traditional blueberry ﬂavors have an element of ﬂoral fantasy in their proﬁle. This ingredient can work in this category, but only at a modest level. In contrast, fresh ﬂavors can make good use at levels ranging from 500 ppm to 800 ppm.
+
+Gooseberry: Gooseberry ﬂavors only surface occasionally, but the proﬁle is very interesting, with methyl esters playing an important role. This raw material helps integrate these esters at around 100 ppm.
+
+Kiwi: The complex character of 6-methyl-5-hep-ten-2-one helps add realism to delicate kiwi ﬂavors at 20 ppm.
+
+Mango: There is a level of afﬁnity between the skin notes in mango ﬂavors and 6-methyl-5-hepten-2-one. An ideal level of addition is 200 ppm.
+
+Pomegranate: Pomegranate ﬂavors have surged in popularity in recent years and many of them incorporate a few fantasy components. Levels of 30 ppm of 6-methyl-5-hepten-2-one help enhance authenticity.
+
+Watermelon: 6-Methyl-5-hepten-2-one helps to integrate the fruity notes derived from aliphatic esters in watermelon ﬂavors and forms an important part of the total proﬁle. A good starting point is 500 ppm, working equally well in both realistic and fantasy style ﬂavors.
+
+### Other Flavors
+
+Burnt sugar: An effective level of addition in burnt sugar ﬂavors is 10 ppm, just enhancing complexity a little. The same level is effective in caramel ﬂavors.
+
+Cocoa: This raw material only plays a minor role in cocoa ﬂavors, simply adding realism at around 20 ppm. It is also effective in chocolate ﬂavors at levels ranging from 10 ppm to 20 ppm.
+
+Coconut: d-Octalactone is the ideal character recognition component for authentic coconut ﬂavors, blending particularly well with 6-methyl-5-hepten-2-one, added at around 20 ppm.
+
+Rose: Most rose ﬂavors fail to escape from the very pleasant conﬁnes of obvious rose otto notes. 6-Methyl-5-hepten-2-one, at around 10 ppm, adds fresh rose petal lift to the proﬁle.
+
+Seafood: Building detail into the heart of seafood ﬂavors is quite a challenge. 6-Methyl-5-hepten-2-one is effective, at levels ranging from 80 ppm to 120 ppm, in all categories. It is arguably most effective in crab ﬂavors.
+
+Tea: Tea ﬂavors are another ﬂavor category where 6-methyl-5-hepten-2-one is effective right across the board. The ideal levels of addition vary a little. Levels of 100 ppm work well in black tea ﬂavors and levels of 200 ppm and higher can work in green tea ﬂavors, depending on the proﬁle.
+
+# THE FUTURE OF AI x FRAGRANCE
+
+> The World Perfumery Congress provided a preview of a sensory future combining human expertise and computing precision.
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/0ba4b942-fc84-4ef8-9825-ccd94c500d98)
+
+> The Kaorium system enables a poetic interactive experience that invites consumers to smell, reﬂect and experience, building a new relationship to fragrances in a retail setting.
+
+Computational power and large amounts of data have led to breakthroughs in areas such as drug discovery, autonomous driving, machine generated faces and voices, as well as the customization of your favorite social media feeds.
+
+But when it comes to computationally created fragrances, can we smell them yet?
+
+In June 2016, I asked the president of innovation at a large fragrance and ﬂavor supplier whether they believe that robots will soon be able to create per-fumes. They said they hoped to no longer be around if it ever were to occur.
+
+In July 2022 at the World Perfumery Congress
+
+(WPC) in Miami, Symrise senior perfumer Dave Apel told me of the moment he knew the company’s digital perfumery assistant, Phylria, worked, “I could relate to what the machine was doing. I watched it do something I studied 40 years for.”
+
+Futurist Roy Amara once said, “We tend to over-estimate the effect of a technology in the short run and underestimate the effect in the long run.” My two conversations, six years apart, and Amara’s quip suggests that we have underestimated the potential of what lies ahead in the world of fragrance. Speciﬁcally, groundbreaking innovations are in the making when it comes to machine learning (ML)—a subﬁeld of AI—that gives computers the ability to learn without explicitly being programmed.
+
+This is not only great news to our noses, but also to many pharma CFOs because applications for the chemical industry are already leading to a tremendous reduction in time and R&D costs. For designers of ﬂavor and fragrance, increases in creativity, sustainability and scent discovery are to be expected, with a vision to use ML for molecular synthesis as well.
+
+### The Early Days of F&F and AI
+
+More than a decade ago, an articlea systematically identiﬁed the ingredient combinations responsible for the taste palette of regional cuisines from a molecular level (F-1).
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/cbcd7316-9b3d-49dd-9bb8-9a43fe7a50be)
+
+It was the most downloaded essay across all Springer Nature journals, exceeding 100,000 PDF and page views in the ﬁrst four weeks of its publication. The paper also buzzed across academia; I witnessed it cited at presentations from Oxford University to MIT.
+
+A few years later, Chef Watson, powered by IBM’s Watson, an AI supercomputer, was born. It understood food at the molecular level; learned about culinary traditions, people’s likes and dislikes; and could compute unique ﬂavors that would elicit surprise and enjoyment in consumers. Thereafter, however, progress was largely silent for almost a decade.
+
+Meanwhile, in the fragrance realm, the ﬁrst AI-developed fragrance hit the market in 2019, courtesy of Symrise and IBMb. At the same time, companies investing large sums into research and manufacturing facilities catering to AI have made headlines. Which makes me wonder—what is brewing behind the scenes, waiting to make the next big impact in fragrance and AI?
+
+The WPC 2022 showcased three technologies that highlighted how the business of scent is being digitized from the supplier through to the consumer. What was once the province of intuition, taste, acquired skill and institutional knowledge is now being enhanced by emerging technologies.
+
+### Augmenting the Perfumer
+
+Creativity is hard to achieve, yet easy to recognize. A successful fragrance fulﬁlls human desire and adds an element of surprise. This element of surprise is where creativity comes in. Therefore, if a machine can identify and create something that has never been done before, then it can be argued that computational creativity existsc.
+
+One example is Philyra, a program jointly designed by IBM and Symrise to augment a perfumer’s expertise and achieve higher creativity and sustainability in the creative process. The platform uses machine learning to help identify patterns and generate novel combinations of fragrance formulations. The program is led by Richard Goodwin,
+
+Ph.D., principal researcher of the Computational Creativity Research Group at IBM T.J. Watson. At Symrise, an internal cross-disciplinary group runs the effort, including VP senior perfumer Dave Apel.
+
+> The future of smell will involve the synthesis of expert  knowledge, data-driven scent development and an increase in consumers’ sensory  awareness, even when the scent of this composition is yet to reach our  perceptual threshold.
+
+The platform’s data is encrypted, consisting of 20-plus dimensions of more than 2,000 raw materials and 3.5 million fragrance formulas. The algorithm learns from existing formulas, raw materials, historical success data and industry trends. Use cases include creating a new signature fragrance or ﬂanker strategy based on white space analysis, as well as focusing on a microtarget or sustainability.
+
+The starting point for this tool is the fragrance formula, known as the “seed formula.” Once the formula is added to the system, the perfumer can mark how far away from the original they are looking to push the boundaries in their creation.
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/3539d6c3-0367-4194-889a-bebf2bf0a168)
+
+> Symrise VP senior perfumer Dave Apel is part of an internal cross-disciplinary group that runs the Philyra program.
+
+To illustrate, Apel draws a set of concentric circles on a piece of paper and marks dots in the circles. Each dot represents a fragrance. The further away from the center, the further away we move from the success criteria. He then draws another set of concentric circles that overlap with the prior set. Apel proceeds by adding dots to the areas where the circles overlap. These, he says, are all unique possibilities of fragrances. Do we want the new fragrance to resemble what has been deemed successful in the past or are we willing to accept larger deviations and potentially be rewarded with entirely new creations?
+
+Phylria can suggest alternative materials, considering dosing for each ingredient based on usage patterns, pleasantness and novelty of the fragrance by comparing it to a large set of commercially available fragrances. The technology also takes into consideration the technical qualities of raw material, including the molecular bloom, weight, vapor pres-sure and threshold of human perception.
+
+The clean interface presents 12 new fragrance formulas per input. For a creative exploration, a perfumer can analyze the output formulas and choose a selection of them to be compounded in order to smell them. The operating perfumer can also direct the Phylria platform to generate new combinations of fragrance formulations that ﬁt speciﬁc design objectives—for example, creating a unique fragrance for Brazilian millennials.
+
+### Niche vs Mass Applications of AI Perfumery
+
+O Boticario, a top global beauty and fragrance company, launched the ﬁrst AI fragrance in col-laboration with Symrise in 2019. At the time, the database contained more than 2 million fragrance formulas. Phylria tapped a warm milk ingredient that was available to perfumers from the ﬂavorist palette and added fenugreek for the coumarin sweetness always found in a fougere accord in a way that has never been used before in this context. It was a moment of surprise for Apel; he did not know the ﬂavor ingredient existed and never would have thought of adding it to create this olfactory effect.
+
+Phylria thus proved that machinal creativity in the world of fragrance is possible. With minimal intervention of the perfumer, this fragrance composition was tested against a demographically pleasing benchmark, succeeded, and was brought to market. Alas, the sales ﬁgures of this fragrance did not meet expectations. When speaking to Symrise about this case, Apel emphasized that AI-assisted fragrances are in their infancy and fragrances created for broad commercial appeal probably do not meet the criteria of generating great surprise with novel notes.
+
+On the other hand, the application of this technology to niche fragrance creations that generate tremendous love/hate reactions may be more appropriate. Having said that, Philyra offers insight into accords and combinations that play upon our emotions in a very targeted way. This type of development is the cutting edge of commercial development.
+
+### AI-driven Regulatory & Sustainability Compliance
+
+In addition to pushing the creative boundaries, Phylria algorithm also suggests ingredient substitutes for formulas to comply with new safety and regulatory standards. It can, for instance, substitute in more sustainable materials with higher biodegradability and renewability scores, all while keeping a similar olfactory proﬁle. This offers unparalleled opportunity to design fragrances to be more environ-mentally conscious, potentially offering signiﬁcant cost savings and increasing consumer demand.
+
+### An Olfactory Compass
+
+While Philyra’s starting point is a fragrance formula composed of fragrance ingredients and their respective weights, the Aryballe odor analytics platform’s starting point is the fragrance itself.
+
+During a demo at WPC, a tube attached to Aryballe’s technology was placed inside a bottle to assess the headspace, i.e., the air above the fragrance. Within a second, the names of the molecules present appeared on an attached display. Just as quickly, upon removal of the odor, the graph showing the molecular reading reduced to zero, demonstrating the swiftness of the computational analysis and the sensitivity of the measuring device.
+
+Aryballe is building a digital library of odors. The company has raised $18 million in total, including $7 million in its series B in 2020, with investors including Hyundai, Samsung, Asahi and IFF. Its suite of clients comprises several large fragrance houses.
+
+Sam Guilaume, the co-founder and CEO of Aryballe, shared, “We don’t know yet how many dimensions the odor space will have.”
+
+With one sniff, the company’s sensor technology can identify an odor or fragrance not just based on single compounds but based on the way our nose detects scents through our receptors. It then situates this odor or odor composition on a digital odor map in relation to other fragrances or odors. One can zoom in to see similar odors and zoom out to view clusters of different odor groups.
+
+Guilaume further explained the nuances of the technology, “Imagine you are using your GPS, it knows where you are on a continent, in a city and will help you navigate the space. Here, there are different continents, the vanilla continent, and the fruity continent for example.”
+
+The technology can be a compass. As a perfumer’s tool, it can eliminate the step of a perfumer inputting a formula. It also allows them to work with more formula candidates and visualize the odor proﬁle before executing a new fragrance, thereby greatly reducing time and cost associated with fragrance creation.
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/29d1e036-e310-4ed1-b877-cea1a1674553)
+
+> Aryballe’s odor analytics platform is designed to assess the headspace of a fragrance.
+
+Aryballe’s technologies are designed to smell and identify an odor through a combination of biochemical sensors and advanced optics coupled with machine learning. The company’s latest device, The NeOse Advance, introduced in 2021, is the ﬁrst product based on Aryballe’s silicon photonics-based platform.
+
+The company’s proprietary peptides, once grafted onto silicon, are able to respond to a wide variety of odors. Designed with heightened stability, Aryballe’s peptides are said to be appropriate for a wide range of operating conditions and mimic the sensitivity of the human sense of smell. If your nose can smell it, so can the sensor.
+
+The same sensor can be used to distinguish lavenders as well as to detect malodors in cars. Databases of odors can be created to fulﬁll speciﬁc client and industry needs.
+
+Aryballe’s odor sensor can be utilized to identify counterfeit fragrances, for example. It does this by not only analyzing the odor composition but by capturing each step of the perfume’s evolution from top, mid to base note, based on volatility. This enhances the capability to distinguish between an original and a counterfeit because the counterfeit will diffuse differently, which can be captured better over time.
+
+For automotive applications, Aryballe can help capture the odor data of materials to aid in vehicle part standardization and assist auto manufacturers in meeting their sustainability goals by monitoring recycled materials, which are known to emit smells that are undesirable to consumers.
+
+In consumer appliances, the technology can enhance cooking appliances by adding automation features based on odor analysis to, for example, know when cookies have ﬁnished baking or when food in a refrigerator has gone bad.
+
+### Translating Scent into Words
+
+Even the most novel, sustainable and beautiful fragrances will accumulate dust on product shelves if they are not embraced by customers. With almost 5,000 new fragrances launched between 2020 and 2021, it has become increasingly difﬁcult for consumers to ﬁnd fragrances they will love. In addition, fragrances are able to elicit highly emotional responses, yet are difﬁcult to put into words.
+
+In a retail setting there still has not been much innovation beyond transferring an online quiz onto an in-store touch display or creating a blind smelling experience in which consumers can smell fragrances without knowing which brand or fragrance they are currently smelling—thereby eliminating visual and brand biases. This is where Kaorium by Scentmatic from Tokyo, Japan, enters the stage.
+
+Kaorium is a digital table system with perfume bottles displayed in a semi-circle on top. The system enables a poetic interactive experience that invites consumers to smell, reﬂect and experience, building a new relationship to fragrances in a retail setting.
+
+Attendees at WPC who interacted with the display gave it a 9.4 (out of 10) satisfaction rate and a net promoter score of 75. The technology is currently part of Shiseido Open Innovation Program and R&D center and is being used to develop new fragrances based on consumer data.
+
+Scentmatic collaborated with Nose Shop in Shinjuku & Ginza, Tokyo. The Kaorium display took the center stage and increased store entry rate by 139% and sales conversion rate by 287%. Scentmatic CEO Toshiharu Kurisu’s mission is to help people appreciate scent more and help them more easily discover the scent they like.
+
+When asked whether there had been additional advertising, Shin Watanabe, director at Scentmatic, says that the company only marketed their display on social media. The post was picked up by an inﬂuencer account on Twitter, which generated additional buzz.
+
+Watanabe added, “People are not ready to choose in [the] current buying experience. We are here to help solve this problem.”
+
+What is the Kaorium experience? Here’s a breakdown:
+
+•	Step 1: The consumer selects their preferred fra-grance from a selection of unmarked bottles and places it on a digitally connected coaster.
+
+•	Step 2: Various words that express the fragrance (such as “romantic” and “warm”) ﬂoat onto the table display. The consumer selects the word that to them best represents the fragrance that they just picked.
+
+•	Step 3: The display then illuminates a selection of fragrances and asks the consumer to smell these and choose the one that best matches the previ-ously selected word.
+
+•	By repeating this process of consciously smelling fragrances, reﬂecting and connecting them to words, the system derives a pattern of the consumers individual perception and builds a database of word-scent associations.
+
+The ﬁnal output is an AI-generated poetic phrase that brings to life a sensory scene based on three fra-grances and words selected in the discovery process. The names of the fragrances are only then revealed.
+
+This AI-enabled consumer experience bridges the sensorial and rational mind and when asked what sets Kaorium apart from other AI technologies, Kurisu explained, “It invites consumers to smell, removing memories and biases, and allows them to take a moment to learn about their fragrance preferences.” Such a process that requires presence and focus enables consumers to form a new relationship to fragrances.
+
+As well as allows people learn an olfactory language, build the conﬁdence to express their pref-erences and help them ﬁnd their next scent.
+
+Kurisu continued, “Scentmatic’s goal is to create a dictionary for perfumes that translate words to scents and scents to words.”
+
+The tech combines gathered data from the consumer experience, coupled with professional, marketing data and Japanese novels. By using Kaorium’s latest version, which can ﬁt on a makeup counter, retailers can increase in-store engagement, education and improve sales while gaining new insight about consumers’ preferences.
+
+Learning how to smell fragrances without visual inﬂuences and how to express preferences in a world where at least 14 new fragrances are launched every single day holds more potential than we can currently foresee.
+
+### The World Ahead
+
+Great progress has been made in bringing computational power, data and scent design together. The fact that machines can support perfumers and consumers alike is hardly a surprise on its own. However, the extent to which these novel approaches can expand the range of applications is striking, as all aspects—including computer aided purchase decisions, safety, cost and timing in R&D, digital signatures, certiﬁcations, sustainability, and creativity—are affected. The future of smell will involve the synthesis of expert knowledge, data-driven scent development and an increase in consumers’ sensory awareness, even when the scent of this composition is yet to reach our perceptual threshold.
+
+When I ask Apel, “What is the future of AI assisted fragrance design?” He simply replies, “Everything.”
+
+# The Intensifying Relationship Between Scent and Well-being
+
+> The latest innovations and portfolio launches in the functional fragrance market.
+
+The global health & wellness products market is expected to reach a valuation of $6,900 million in 2022 with a robust CAGR of 6.9% between 2022 and 2032, totaling around $13,459.6 million by the end of 2032. With the growing consumer demand in the wellness segment, the fragrance
+
+industry has been booming with innovation both behind the scenes and on the shelves. Here are some of the latest companies making headlines.
+
+### Latest Platform Launches
+
+F&F companies have been investing in research hiveminds to create portfolios that center around various aspects of wellness consumers are searching for.
+
+One of which was Givaudan’s Silver Radiance program in September 2022, exclusively focusing on the silver generation (consumers over 55 years old).
+
+The company is said to have built the program based on consumer research with data collected from more than 7,000 seniors in 11 countries around the world.
+
+The Silver Radiance Program is designed to help improve the quality of living while aging, through emotional, behavioral and physical beneﬁts. The ﬁrst step of this program was introduced through the Silver Radiance solutions, said to bring concrete tailored innovations to this population, from better sleep to higher energy levels.
+
+Givaudan’s portfolio of complementing technologies and active ingredients aimed to improve seniors’ wellbeing include:
+
+DreamScentz: Technology explores fragrance solutions to enhance mood and the sleep experience. Givaudan developed the technology in alongside specialists in neuroscience, psychology, sensory science and fragrance at its Sensory Center of Excellence in Ashford.
+
+MoodScentz: Technology that aims to help consumers achieve a holistic sense of well-being through fragrance across all categories of perfume including ﬁne fragrance, personal, home and fabric care as well as oral care ﬂavors.
+
+VivaScentz: A fragrance technologies platform designed to guide perfumers and creative teams in crafting mood enhancing fragrances to evoke positive emotions.
+
+Not long after in November 2022, Firmenich debuted EmotiCode Focus, an artiﬁcial intelligence-generated (AI), cross-category set of “design rules” for creating fragrances that enhance consumers’ mental performance in cognitive tasks.
+
+The rules represent the next evolution of Firmenich’s EmotiOn program, which is designed to optimize the emotional impact of fragrances.
+
+Using Firmenich’s ScentMove tool, which according to the company “provides a template for verbalization of emotions and enables the evaluation of feelings elicited by odors and fragrances,” consumer insights professionals were able to connect the dots between speciﬁc emotions and focus.
+
+![image.png](https://res.craft.do/user/full/58b14caa-139a-05df-1a52-3bbadfe86882/doc/9f3426bb-037a-4f51-9543-c231157f9fe4/8e176a46-5696-4fcc-a335-7aa10255a92b)
+
+> Using Firmenich’s ScentMove tool, which according to the company "provides a template for verbalization of emotions and enables the evaluation of feelings elicited by odors and fragrances," consumer insights professionals were able to connect the dots between speciﬁc emotions and focus.
+
+The company used these insights to develop “a set of design rules to create fragrances that evoke the emotional response linked to focus,” known as EmotiCode.
+
+Ilaria Resta, president, global perfumery, Firmenich, stated, “There are many potential beneﬁts that the Focus fragrance can bring in people’s homes, in their personal and shared spaces, and in their lives. Focus is crucial to mental wellness. Now, for the ﬁrst time ever, we can help consumers achieve focus, wherever they are, with fragrance. These fragrances can deliver related beneﬁts, such as mental efﬁciency and clarity of mind, bringing the power of Positive Perfumery to consumers.”
+
+### On the Shelves
+
+On the consumer-facing end, Scent & Fire founder, “Scent Bae” Monisha Edwards, is on a mission to tackle mental health issues with products designed to de-stress environments. The Black female-owned company’s line-up includes fragrance collections made from domestically sourced raw and recycled materials. Edwards utilizes tech to enhance aromatic experiences through curated music playl-ists and online community building.
+
+After being diagnosed with PTSD, seasonal affec-tive disorder and severe anxiety, Edwards discovered aromatherapy and burned candles to calm her envi-ronment and keep anxiety attacks at bay. This led to candlemaking on her own, which helped with her stress and depression, curating her own scent blends in soy wax. The now six-ﬁgure company offers collec-tions ranging from candles, wax melts, room sprays and diffusers.
+
+Edwards shared, “Through scent and sound, my customers and users can count on an eco-luxury multi-sensory experience without sacriﬁcing wellness, sustainability or aesthetics. I create my products to beautify environments and provoke the senses with clean fragrances. Scent & Fire provides clean fragrance alternatives and aromatherapy experiences for self-care and a sense of wellbeing. Making the conscious decision to rise above any past trauma and mental issues, and using the gifts and talents I possess to make clean fragrances was my sole goal.”
+
+Vegan skin care company, Majenye, expanded its offerings with a candle line devoted to wellness-inspired scents to help users go to sleep. One of which being Lucid Dreams, holding notes of bergamot, rose, citrus, lavender, sandalwood, cedarwood and amber. The collection is designed to “emit a calming essence and fragrance throw that adds a unique ambiance that is perfect for winding down.”
+
+> With the growing  consumer demand in  the wellness segment, the fragrance industry has been booming with innovation both behind the scenes and on  the shelves.
+
+### On the Horizon
+
+With the surge of consumer products and the investment in research throughout the fragrance industry, it looks as though innovation is far from peaking in the scent and well-being segment. We are waiting with bated breath to see what next technology development will take over the headlines.
+
+# PERFUMER NOTES: OUD
+
+> Take a look at the nuances, versatility and usage of oud.
+
+For its latest “Perfumer Notes” column, Perfumer & Flavorist+ connected with Iberchem perfumer, Ana Gómez, to explore her journey of formulating with oud. Gómez shared her personal and professional insights on the mystery and beauty of oud, a raw material she deems as being “worthy of some of the most luxurious perfumes in the world.”
+
+### First Impression
+
+Everyone's ﬁrst experience with oud is rather startling for many reasons. Oud is a well-known raw material in the Middle East, and, until recently, quite unknown in Europe and America (this is now changing thanks to the growing popularity of niche perfumery). When I ﬁrst smelled it, I was very struck by its strong, animalic scent, almost fecal, some would say. A truly unforgettable sensation.
+
+Many people say that oud leaves you speechless the ﬁrst time you smell it. It makes you question whether a perfume that smells ''good'' could really contain this raw substance. The answer is that it can, but we need to smell it with an open mind.
+
+### Acquiring Oud
+
+Let's start by looking at what oud actually is. Oud is one of the most popular ingredients in Arab culture. Agarwood comes from the Aquilaria trees, native to Southeast Asia. This wood is odorless and pale, but, when infected by the Phialophora parasitica fungus, the tree produces a foul-smelling resin that impregnates the wood to protect itself, making it harder and darker.
+
+After some years, this infection will start to produce the precious oud oil. About 20 years after infection, the trunk of the tree begins to secrete resin, and it will take at least 50 years for there to be a usable proportion of infected wood. This slow ageing process directly inﬂuences the quality of the oil that will later be obtained, as the more years that pass after the infection, the more resin the tree will produce, and, consequently, the more fragrant the wood will be.
+
+In the forests where these trees are found, only 7% of them are naturally affected by fungi, so nowadays a number of artiﬁcial methods are used to infect the trees and cause the resin to appear.
+
+In the course of the whole production process, the infected parts of the tree are cut off to be reﬁned for distillation or to be used as chips and burned as incense (a long-established tradition in the Arab world). The rest are left, in the hope that the tree won't die and the resin-infected wood will continue to grow.
+
+Distillation is carried out using steam. The cut wood is soaked in water for a few months. It is then placed in large boilers and heated. The con-densed water and oil are collected in a condenser and then separated.
+
+The difﬁculty and time involved in obtaining it explains its high price. It is the most expensive ingredient in the perfume industry, and its price can reach $30,000 per kilo.
+
+### Exploring Uses
+
+I keep oud for the most sophisticated ﬁne fragrance products because of its high price and also because it’s a product protected by CITES (Convention on International Trade in Endangered Species of Wild Fauna and Flora), so I only use it when it's really worth it. Most of the time, it's used for fragrances intended for the Middle East—mostly premium-quality fragrances, depending on the project. I must admit that I sometimes add a hint of oud to more ''French-style'' perfumes bound for Europe, as niche perfumery is booming here, and oud adds a luxurious, unique touch.
+
+Other products I consider using a hint of oud in are Middle East home care products, such as candles, bakhoors or air fresheners (both the spray type as well as reed diffusers). In these products, a touch of oud helps me to enhance the oriental nuances and give them more intensity and improve their potency.
+
+# Organoleptic Characteristics of Flavor Materials
+
+> This month’s column explores the versatility of heliotropyl acetone, propyl levulinate, propyl caproate, natural and more.
+
+### Propyl caproate, natural
+
+Source: Vigon
+
+FEMA# 2949, CAS# 626-77-7
+
+Natural occurrence: Apple, apricot, Asian pear, Parmesan, provolone, Gruyere, durian, orange juice, grapefruit juice, grape, passionfruit, paw-paw, peach, peas, rum, whiskey, wine.
+
+Odor: @ 1%. Pineapple, fruity, waxy, slightly musty, rum, cognac, fatty, heavy, tropical and slightly cheesy.
+
+Taste: @ 1 ppm. Soft, fruity, slightly sweet, light green, waxy.
+
+Taste: @ 2 ppm. Waxy, fruity, pineapple, somewhat musty, sweaty, grape, ﬂoral, heavy, tropical.
+
+Possible applications: The panel felt that this ester contributes a very nice green note for multiple uses, but particularly for tropical proﬁles. There were lots of mentions of pineapple, generic tropical and also guava, mango, and passionfruit. Other mentioned fruits included apple, pear, grape and strawberry. The panel also think that this would work in some aged cheeses and white wine.
+
+### Propyl levulinate
+
+Source: Sigma-Aldrich
+
+FEMA# 4480, CAS# 645-67-0
+
+Natural occurrence: Brandy.
+
+Odor: @ 1%. Heavy, earthy, gassy, smoky, brown, fermented, cask-like, slightly resinous and olive-like. Taste: @ 1 ppm. Earthy, sweet, slightly resinous, vanilla, slightly creamy.
+
+Taste: @ 3 ppm. Sweet, creamy, brown, woody, smoky.
+
+Possible applications: The panel felt this would work in a vanilla or cask-like environment. Maybe in maple and also in caramel or sugar cookie. It would deﬁnitely would work in rum, sherry and wine. It might be worth trying in green olive proﬁles.
+
+### Heliotropyl acetone
+
+Source: Penta
+
+FEMA# 2701, CAS# 55418-52-5
+
+Not naturally occurring.
+
+Odor: @ 1%. Slightly ﬂoral, fruity, berry and powdery, sweet, marshmallow, caramel, resinous, cooked sugar.
+
+Taste: @ 5 ppm. Sweet, powdery, marshmallow, vanillic, berry, somewhat ﬂoral.
+
+Taste: @ 10 ppm. Berry, ﬂoral, fruity, slightly waxy, sweet, marshmallow, cherry-like, powdery, caramellic, vanillic, resinous.
+
+Possible applications: Firmly entrenched in the sweet category, this material can pose into dif-ferent positions and proﬁles. There was the cherry-berry camp where this would ﬁt well into all the berries, including the ever-popular blue raspberry. For me, this would marry well with dimethyl sulﬁde for ripe notes in berries. The ﬂoral aspect of this would allow it to work in ﬂoral ﬂavors such as rose or lavender. I can even see this in bubble gum proﬁles. There is also a vanillic, helio aspect to this where many felt it would have a good role in caramel, vanilla, cotton candy or even a sweet cream proﬁle. The panel also felt that this would be nice in a root beer or added to a balsamic proﬁle.
+
+### a-Terpinene, natural
+
+Source: Vigon
+
+FEMA# 3558, CAS# 99-86-5
+
+Natural occurrence: Acerola, calabash nutmeg, California pepper, caraway, cardamom, carrot, celery, cherimoya, bergamot, bitter orange, grapefruit, kumquat, lemon, lime, mandarin, orange, tangerine, yuzu, clove, coriander, cumin, date, dill, elderberry, fennel, hazelnut, gin, ginger, grape, guava, honey, kiwi, litchi, nutmeg/mace, papaya, parsley, passionfruit, peach, pecan, black pepper, pimento, pistachio, pomegranate, potato chips, prickly pear, raspberry, rooibos, rosemary, rum, starfruit, tarragon, tea, thyme.
+
+Odor: @ 1%. Piney, green, distilled lime, slightly musty, lifting.
+
+Taste: @ 1 ppm. Green, fruity, skin notes, citrus.
+
+Taste: @ 2 ppm. Fresh, green, lime, pine, mango.
+
+Possible applications: This terpene is found in lots of places and I think can be adapted to the environment, too. At lower levels, I can see this in multiple fruits for skin notes—such as white or green grape, apple, pear and mango. But at higher levels, this terpene can hold its own in citrus, especially limes and speciﬁcally distilled lime. So, naturally, let’s also think of things like cola and gin! Many panelists felt that this material would also work nicely in different herbs and spices, such as oregano, cumin, rosemary and fresh dill. The vegetables that the panel mentioned included carrot and green pepper.
+
+### 2-Methoxy-3-methylpyrazine
+
+Source: Synerzine
+
+FEMA# 3183, CAS# 2847-30-5
+
+Natural occurrence: Krill, shrimp.
+
+Odor: @ 1%. Nutty, musty, earthy, raw, sweet, intense, brown, roasted, coffee, cocoa, bready.
+
+Taste: @ 1 ppm. Nutty, toasted, brown.
+
+Taste: @ 2 ppm. Nutty, bitter, earthy, slightly shrimpy, strong, brown, toasted, peanut.
+
+Possible applications: The panel deﬁnitely saw this as a part of peanut, roasted sesame, coffee, hazelnut, grains and for toasted and roasted notes. This is a part of peanut, roasted sesame, coffee, hazelnut, grains and for toasted and roasted notes. This is the single isomer, so it is different from the blend normally thought of with thinking of 3183. Since this is a natural, you might try this at half the level of 2-acetyl pyrazine as a substitute!
+
+### 2-Acetyl-2-thiazoline
+
+Source: Sigma-Aldrich
+
+FEMA# 3817, CAS# 29926-41-8
+
+Natural occurrence: Beef, cheddar, chicken, orange, corn, lamb, litchi, cream, skim milk, mustard, peanut, pistachio, sesame seed, salami, shrimp, tea, wheat.
+
+Odor: @ 0.1%. Toasted, corn-like, cereal, fatty, oily, nutty, baked, graham cracker, potato/corn chips.
+
+Taste: @ 0.1 ppm. Brown, toasted, cooked, crusty, baked, sweet, nutty, corn, fatty, oily, grain, salty.
+
+Taste: @ 0.2 ppm. Sweet, brown, corn, nutty, toasted cereal, slightly meaty, graham cracker, cooked.
+
+Possible applications: This compound sort of screams corn, and in all forms—cooked, roasted, popped and in chip proﬁles, as there seems to be a salty aspect to this, as well! But when you look past that, there is much more to the proﬁle, and at low levels, can be used as a toasted and roasted note. Many nut proﬁles came to mind, such as almond, hazelnut, pistachio, peanut, cashew and also sesame seed. This might bear remembering with the new allergen list.
+
+### cis-6-Nonen-1-ol
+
+Source: Synerzine
+
+FEMA# 3465, CAS# 35854-86-5
+
+Natural occurrence: Cucumber, ﬁsh, litchi, musk melon, watermelon, pepino.
+
+Odor: @ 0.1%. Green, waxy, pulpy, sweet, slightly earthy, vegetative, cucumber.
+
+Taste: @ 0.1 ppm. Green, sweet, fresh, melon, pulpy, waxy, fatty, some mouthfeel.
+
+Taste: @ 0.2 ppm. Green, sweet, waxy, pulpy, cucumber, fresh, fruity, with a fatty body.
+
+Possible applications: At really low levels, such as 0.1 ppm, this alcohol would function nicely in peach or nectarine ﬂavors, mango and, at an even lower level, may work nicely in tomato. At slightly higher levels, it would work in apple, pear and papaya. At even higher levels, it functions nicely in cantaloupe, honeydew, watermelon and cucumber ﬂavors. This might also work in raw jicama, potato and other fresh vegetables.
+
+### (Z)-4-Decenal, 4-Decenal
+
+Source: Bedoukian
+
+FEMA# 3264, CAS# 21662-09-9
+
+Natural occurrence: Caraway, cardamom, chicken, mandarin, orange, yuzu, clam, coriander, potato, tomato.
+
+Odor: @ 0.1%. Cardamom, mandarin, green, sharp, citrus peel, cilantro, ﬂoral, fatty, waxy, brothy, chicken, pork, rich.
+
+Taste: @ 0.1 ppm. Green, fatty, coriander, melon, cardamom, potato, orange, mandarin, chicken fat drippings, brothy.
+
+Taste: @ 0.2 ppm. Very strong, aldehydic, fatty, waxy, lots of mouthfeel, cheesy, sweaty, earthy, potato, brothy, chicken, pork, very rich.
+
+Possible applications: Well, it seems like the panel was either volatile when you read those sensory attributes or spot on! The only items we failed to mention were the clam and tomato when you compare against the naturally occurring list.
+
+### O-(Methylthio)phenol
+
+Source: Synerzine
+
+FEMA# 3210, CAS# 1073-29-6
+
+Natural occurrence: Coffee.
+
+Odor: @ 0.1%. Smoky, brown, phenolic, coffee, cocoa, bacon, rubbery.
+
+Taste: @ 0.1 ppm. Brown, toasted, smoky, vanillic, phenolic, rubbery.
+
+Taste: @ 0.2 ppm. Coffee, brown, smoky, rubbery, phenolic.
+
+Possible applications: It’s not surprising that this phenol has the characteristics listed above. It’s found in coffee and has a home there. The panel also felt this could play a role in smoke replaces and could be used for roasted garlic or onion notes, ham and bacon.
+
+### 2-Ethyl fenchol
+
+Source: Bedoukian
+
+FEMA# 3491, CAS# 18368-91-7
+
+Not naturally occurring.
+
+Odor: @ 0.01%. Earthy, musty, damp, camphoraceous, beets, piney, thyme, mushroom.
+
+Taste: @ 0.01 ppm. Earthy, carrot, rooty, green, damp, musty, camphoraceous.
+
+Taste: @ 0.02 ppm. Musty, earthy, mushroom, rooty, beet, pine.
+
+Possible applications: Look at those use levels! At 10 ppb, we can detect this with decent impact. The panel came up with an array of proﬁles where this would ﬁt. Vegetables include beets, potato, mushroom, trufﬂes, carrot, turnips and hummus. We also felt that this would work in Brazil nuts and black walnut. Shrimp, lobster and catﬁsh came up as options, as well. A mention of mold made me think of blue cheese.
+
