@@ -1,10 +1,3 @@
-# Heptabase vs Notion vs Obsidian. Compare Heptabase, Notion, and Obsidian… | by 詹雨安 Alan Chan | Aug, 2023 | Medium
-[
-
-![](https://miro.medium.com/v2/resize:fill:88:88/2*h2YBNypdOXs8PlpLs6VJ5Q.png)
-
-
-
 ![](https://miro.medium.com/v2/resize:fit:1400/1*f39mKBBzsx-QA01S1uP_sw.jpeg)
 
 從開始打造 [Heptabase](https://heptabase.com/) 至今，很常有人會問我：Heptabase 跟 Notion、Obsidian 誰比較好？這些工具有什麼不同？Heptabase 具備什麼獨特的優勢？在這篇文章裡，我會以 Heptabase 共同創辦人的視角去回答這個問題。
