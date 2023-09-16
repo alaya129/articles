@@ -26,11 +26,11 @@ Vous êtes nombreux sur [Instagram](https://www.instagram.com/lilibarbery/) à m
 
 
 
-**Une longue phase de rejet  
+\*\*Une longue phase de rejet  
 
 
 
-## 一个长时间的拒绝阶段 **
+## 一个长时间的拒绝阶段 \*\*
 
 
 
@@ -48,11 +48,11 @@ Photographie Bastien Coulon
 
 
 
-**La beauté ressentie n’est pas dépendante des circonstances extérieures et certainement pas des produits !  
+\*\*La beauté ressentie n’est pas dépendante des circonstances extérieures et certainement pas des produits !  
 
 
 
-## 感受到的美丽并不取决于外部环境，当然也不取决于产品！**
+## 感受到的美丽并不取决于外部环境，当然也不取决于产品！\*\*
 
 
 
@@ -116,11 +116,11 @@ RIVE DROITE 摄影师 Lucie Sassiat 拍摄
 
 
 
-**Les critères chers à mon cœur  
+\*\*Les critères chers à mon cœur  
 
 
 
-## 我心中珍视的标准 **
+## 我心中珍视的标准 \*\*
 
 
 
