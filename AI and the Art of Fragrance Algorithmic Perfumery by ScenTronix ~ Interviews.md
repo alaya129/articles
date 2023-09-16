@@ -2,13 +2,13 @@
 [AI and the Art of Fragrance: Algorithmic Perfumery by ScenTronix ~ Interviews](https://www.fragrantica.com/news/AI-and-the-Art-of-Fragrance-Algorithmic-Perfumery-by-ScenTronix-18685.html) 
 
  In recent times the topic of AI _(ed.: Artificial Intelligence)_ has been constantly on my radar, so I pay attention to projects at the intersection of new technologies and perfumery art. Almost always, interviews come about by chance through fate, and so it happened this time: a friend of mine visiting the **Museum of the Future** in Dubai noticed an unusual perfume machine and sent me the photo. Of course, I was interested and decided to look into it and find the founders of the project. That's how I ended up on the project's website dedicated to the AI tech start-up **“ScenTronix”**, **“Algorithmic Perfumery”** machines and on-line bespoke [perfume service “EveryHuman.”](https://www.everyhuman.com/us)  
-最近，人工智能（AI）的话题一直在我的关注范围内，因此我关注新技术和香水艺术交叉的项目。几乎总是通过缘分偶然得到采访机会，这次也是这样：我的一位朋友在迪拜未来博物馆参观时注意到了一台不寻常的香水机器，并给我发了照片。当然，我很感兴趣，决定调查一下并找到该项目的创始人。这就是我进入了该项目网站，该网站专门介绍 AI 技术初创公司 “ScenTronix”、“算法香水” 机器和在线定制香水服务“EveryHuman”。  
+> 最近，人工智能（AI）的话题一直在我的关注范围内，因此我关注新技术和香水艺术交叉的项目。几乎总是通过缘分偶然得到采访机会，这次也是这样：我的一位朋友在迪拜未来博物馆参观时注意到了一台不寻常的香水机器，并给我发了照片。当然，我很感兴趣，决定调查一下并找到该项目的创始人。这就是我进入了该项目网站，该网站专门介绍 AI 技术初创公司 “ScenTronix”、“算法香水” 机器和在线定制香水服务“EveryHuman”。  
 
 ![](https://fimgs.net/himg/o.mlT0RJ03ai8.jpg)
 _Museum of the Future in Dubai_  
 
 The group of projects is founded by artist-technologist-filmmaker **Frederik Duerinck** and **Anahita Mekanik**, who is co-founder and head of scent design.   
-该项目组由艺术家、技术专家和电影制片人 Frederik Duerinck 以及香气设计联合创始人和负责人 Anahita Mekanik 共同创建。  
+> 该项目组由艺术家、技术专家和电影制片人 Frederik Duerinck 以及香气设计联合创始人和负责人 Anahita Mekanik 共同创建。  
 
 ![](https://fimgs.net/himg/o.QEHCRfQOmNf.jpg)
  _Anahita Mekanik and Frederik Duerinck; photo credits by Boet Hehuat_  
